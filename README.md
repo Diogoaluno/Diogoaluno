@@ -1,4 +1,4 @@
-## editando perfil
+## sobre mim
 
 - 👋 olá, meu nome é @Diogoaluno
 - :+1:meu email de contato é diogodwesselovicz@gmail.com
